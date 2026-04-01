@@ -23,4 +23,6 @@
             <div align="center">
           <sup> My interests in their dni list; trans iwec!!!; "tolerant"; under 15; interrups and then says "Just hide me if im bothering" ; people who get bother me or my friend (without knowing me or my friend); whiners; any inappropriate shit that ends with -philia; "How can you like this ship when they don't even know each other?" - nah just dni; Hide for no reason; radfems, feminists, fans of Anya Enina; proshippers, darkshippers, selfshippers, nonshare and etc；"rus dni". im not a goverment of my country, keep that in mind; politics </sup>
           <div align="center">
+            ▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄
+            <div align="center">
           socials:: 
