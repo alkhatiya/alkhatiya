@@ -1,9 +1,9 @@
-<div id="text" align="center">
+<div align="center">
 <img width="600" height="600" alt="image" src="https://github.com/user-attachments/assets/742e91c6-b1a7-4529-8d2b-df6daf3542b6" />⠀
 <div align="center">
   ︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵
 <div align="center">
- 𐔌 ᛝ 'Welcome ' .ᐟ 
+<ins> 𐔌 ᛝ 'Welcome ' .ᐟ </ins>
   <div align="center">
     ˚. ᵎᵎInformation that you need to know if you're from Pony Town. <ins>Read before interacting</ins>
     <div align="center">
@@ -15,7 +15,7 @@
       <div align="center">
 ˚. ᵎᵎI'm often AFK, so whispers is the only way to int w me. ᛝ
         <div align="center">
-˚. ᵎᵎUsually im on safe russia 1 or on safe server. Russia 1: Transformers, CH, lower right corner of spawn; Rare: MKB, undertale, upper pier, DSMP, Eddsworld; Super rare: Genshin, HSR, Sekai, dānměiFD, Brawl Stars, Sonic, Madcombat, MGA; Safe: TF, Resident Evil, CH. ᛝ
+˚. ᵎᵎUsually im on safe russia 1 or on safe server. Russia 1: Transformers, CH, lower right corner of spawn; <ins>Rare:</ins> MKB, undertale, upper pier, DSMP, Eddsworld; <ins>Super Rare:</ins> Genshin, HSR, Sekai, dānměiFD, Brawl Stars, Sonic, Madness combat, MGA; Safe: TF, Resident Evil, CH. ᛝ
           <div align="center">
           ˚. ᵎᵎI will not answer if the nickname is DNI or DNIUF(Do not interact or Do not interact unless friends). If you will be trying to int w me, ill hide you or ignore you.ᛝ
           <div align="center">
