@@ -25,4 +25,10 @@
           <div align="center">
             ▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄
             <div align="center">
-          socials:: 
+          socials:: <a href="https://steamcommunity.com/id/alkhatiya/">Steam</a>, <a href="https://t.me/somekindofsinner">tgc shitpost</a>, <a href="https://vk.com/id1107310983">VKontakte</a>
+          <div align="center">
+          <a href="https://open.spotify.com/collection/tracks">Spotify</a>
+         <div align="center">
+           ︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵
+           <div align="center">
+<img width="600" height="600" alt="image" src="https://i.pinimg.com/originals/00/e9/d1/00e9d1c3b347449cba2634a74a6e804f.gif" />⠀
