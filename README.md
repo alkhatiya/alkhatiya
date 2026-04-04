@@ -27,7 +27,7 @@
             <div align="center">
           socials:: <a href="https://steamcommunity.com/id/alkhatiya/">Steam</a>, <a href="https://t.me/somekindofsinner">tgc shitpost</a>, <a href="https://vk.com/id1107310983">VKontakte</a>
           <div align="center">
-          <a href="https://open.spotify.com/collection/tracks">Spotify</a> <a href="https://youtu.be/f2bHoTUiMpI?si=atzRGehXH4RGsBiU">Fav song</a>
+          <a href="https://open.spotify.com/playlist/7rAcKhVbrIxncnQmdPdClY?si=-yzFbWmSRK-BngyX_acB3A&pi=2JPMc_yPReWwP">Spotify</a> <a href="https://youtu.be/f2bHoTUiMpI?si=atzRGehXH4RGsBiU">Fav song</a>
          <div align="center">
            ︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵
            <div align="center">
