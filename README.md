@@ -11,6 +11,8 @@
     <div align="center">
 <sup> ᛝ Don't complain about aggressive behavior, it won't change anything, you'll just waste time and get upset. ᛝ </sup>
       <div align="center">
+      <sup>  ᛝ Also, do not sit next to me if you are not my friend. I can be rude. ᛝ </sup>
+        <div align="center">
 ˚. ᵎᵎBoop and Kiss Trigger, don't do this, please. ᛝ
       <div align="center">
 ˚. ᵎᵎI'm often AFK, so whispers is the only way to int w me. ᛝ
