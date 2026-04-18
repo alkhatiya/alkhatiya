@@ -33,4 +33,4 @@
          <div align="center">
            ︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵
            <div align="center">
-<img width="600" height="1000" alt="image" src="https://i.pinimg.com/originals/12/d2/1e/12d21eba74f1b0e350b9bb9354af173d.gif" />⠀
+<img width="600" height="600" alt="image" src="https://i.pinimg.com/originals/31/75/56/317556d9e313d484de90629f146b3e98.gif" />⠀
