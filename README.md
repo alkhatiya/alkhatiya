@@ -27,7 +27,7 @@
           <div align="center">
             ▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄
             <div align="center">
-          socials:: <a href="https://steamcommunity.com/id/alkhatiya/">Steam</a>, <a href="https://vk.com/id1107310983">VKontakte</a>
+          socials:: <a href="https://steamcommunity.com/id/alkhatiyaa/">Steam</a>, <a href="https://vk.com/id1107310983">VKontakte</a>
           <div align="center">
           <a href="https://open.spotify.com/playlist/7rAcKhVbrIxncnQmdPdClY?si=-yzFbWmSRK-BngyX_acB3A&pi=2JPMc_yPReWwP">Spotify</a> <a href="https://music.yandex.ru/playlists/lk.c30960ad-be58-410b-9640-337bd3272e2e?utm_source=web&utm_medium=copy_link">YandexMusic</a> <a href="https://youtu.be/f2bHoTUiMpI?si=atzRGehXH4RGsBiU">Fav song</a>
          <div align="center">
