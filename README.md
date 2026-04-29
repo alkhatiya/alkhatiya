@@ -1,5 +1,5 @@
 <div align="center">
-<img width="600" height="500" alt="image" src="https://github.com/user-attachments/assets/742e91c6-b1a7-4529-8d2b-df6daf3542b6" />⠀
+<img width="600" height="600" alt="image" src="https://github.com/user-attachments/assets/1a9185c5-93dd-43d6-ab9f-81087c058fb5" />
 <div align="center">
   ︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵
 <div align="center">
@@ -33,4 +33,5 @@
          <div align="center">
            ︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵
            <div align="center">
-<img width="600" height="600" alt="image" src="https://i.pinimg.com/originals/92/99/e9/9299e9491f5bc7c427b53bc97b5bc7ed.gif" />⠀
+<img width="600" height="900" alt="image" src="https://github.com/user-attachments/assets/7d1bbe60-38e4-4337-95e5-bc2e7c452830" />
+
