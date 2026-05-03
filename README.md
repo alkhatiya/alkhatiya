@@ -33,5 +33,5 @@
          <p align="center">
            ${\textsf{\color{#f283af}︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵}}$
            <p align="center">
-<img width="600" height="600" alt="image" src="https://i.pinimg.com/originals/16/8a/bc/168abcdc633cff551c0d66da98a37a39.gif" />
+<img width="600" height="600" alt="image" src="https://i.pinimg.com/originals/6d/a2/3f/6da23f4b6a3a575bae2fbe6168bd6c0f.gif" />
 
