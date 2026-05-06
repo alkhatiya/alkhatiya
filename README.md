@@ -1,5 +1,5 @@
 <p align="center">
-<img width="1200" height="600" alt="image" src="https://github.com/user-attachments/assets/85af855c-c1cf-4485-81d5-6e99bc69b45f" />
+<img width="1200" height="650" alt="image" src="https://github.com/user-attachments/assets/85af855c-c1cf-4485-81d5-6e99bc69b45f" />
 <p align="center">
   ${\textsf{\color{#f283af}︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵}}$
 <p align="center">
