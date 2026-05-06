@@ -1,5 +1,5 @@
 <p align="center">
-<img width="600" height="600" alt="image" src="https://github.com/user-attachments/assets/ba0007a9-42eb-4d3f-a7da-92d592c91596" />
+<img width="1200" height="600" alt="image" src="https://i.pinimg.com/originals/5f/f4/ed/5ff4ed8234d87ace9da6219baa9243c3.gif" />
 <p align="center">
   ${\textsf{\color{#f283af}︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵}}$
 <p align="center">
@@ -33,5 +33,4 @@
          <p align="center">
            ${\textsf{\color{#f283af}︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵}}$
            <p align="center">
-<img width="600" height="600" alt="image" src="https://i.pinimg.com/originals/6d/a2/3f/6da23f4b6a3a575bae2fbe6168bd6c0f.gif" />
-
+<img width="600" height="600" alt="image" src="https://github.com/user-attachments/assets/ba0007a9-42eb-4d3f-a7da-92d592c91596" />
