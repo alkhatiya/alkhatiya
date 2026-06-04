@@ -1,13 +1,13 @@
 <p align="center">
   <img width="1124" height="600" alt="image" src="https://github.com/user-attachments/assets/fbd32bd3-197d-4a77-9eca-8bac3ce7804c" />
 <p align="center">
-  ${\textsf{\color{#fc6437}︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵}}$
+  ${\textsf{\color{#fd7d41}︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵}}$
 <p align="center">
-  ${\textsf{\color{#f4dd31} 𐔌 ᛝ 'Welcome ' .ᐟ .}}$
+  ${\textsf{\color{#f3b451} 𐔌 ᛝ 'Welcome ' .ᐟ .}}$
   <p align="center">
     ˚. ᵎᵎInformation that you need to know if you're from Pony Town. Read before interacting.
     <p align="center">
-     ${\textsf{\color{#fc6437}▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄}}$
+     ${\textsf{\color{#fd7d41}▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄}}$
     <p align="center">
 <sup> ${\textsf{\color{#690002}ᛝ Don't complain about aggressive behavior, it won't change anything, you'll just waste time and get upset. ᛝ}}$ </sup>
       <p align="center">
@@ -25,13 +25,13 @@
             <p align="center">
            My interests in their dni list; "tolerant"; under 16; interrups and then says "Just hide me if im bothering"; people who get bother me or my friend (without knowing me or my friend); whiners; any inappropriate shit that ends with -philia; "How can you like this ship when they don't even know each other?" - nah just dni; Hide for no reason; radfems, feminists, fans of Anya Enina; proshippers, darkshippers, selfshippers, nonshare and etc；"rus dni". im not a goverment of my country, keep that in mind; politics; TFC Fandom(The Freak Circus); Undertale Fandom
           <p align="center">
-            ${\textsf{\color{#fc6437}▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄}}$
+            ${\textsf{\color{#fd7d41}▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄▄}}$
             <p align="center">
           socials:: <a href="https://steamcommunity.com/id/alkhatiyaa/">Steam</a>, <a href="https://vk.com/id1107310983">VKontakte</a>
           <p align="center">
           <a href="https://open.spotify.com/playlist/7rAcKhVbrIxncnQmdPdClY?si=-yzFbWmSRK-BngyX_acB3A&pi=2JPMc_yPReWwP">Spotify</a> <a href="https://music.yandex.ru/playlists/lk.c30960ad-be58-410b-9640-337bd3272e2e?utm_source=web&utm_medium=copy_link">YandexMusic</a> <a href="https://youtu.be/f2bHoTUiMpI?si=atzRGehXH4RGsBiU">Fav song</a>
          <p align="center">
-           ${\textsf{\color{#fc6437}︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵}}$
+           ${\textsf{\color{#fd7d41}︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵}}$
            <p align="center">
 <img width="735" height="626" alt="image" src="https://github.com/user-attachments/assets/62731b20-a703-458a-8f38-c7ad40aeb54c" />
 
