@@ -29,10 +29,13 @@
             <p align="center">
           socials:: <a href="https://steamcommunity.com/id/alkhatiyaa/">Steam</a>, <a href="https://vk.com/id1107310983">VKontakte</a>
           <p align="center">
-          <a href="https://open.spotify.com/playlist/7rAcKhVbrIxncnQmdPdClY?si=-yzFbWmSRK-BngyX_acB3A&pi=2JPMc_yPReWwP">Spotify</a> <a href="https://music.yandex.ru/playlists/lk.c30960ad-be58-410b-9640-337bd3272e2e?utm_source=web&utm_medium=copy_link">YandexMusic</a> <a href="https://youtu.be/f2bHoTUiMpI?si=atzRGehXH4RGsBiU">Fav song</a>
+           <a href="https://music.yandex.ru/playlists/lk.c30960ad-be58-410b-9640-337bd3272e2e?utm_source=web&utm_medium=copy_link">YandexMusic</a> <a href="https://youtu.be/f2bHoTUiMpI?si=atzRGehXH4RGsBiU">Fav song</a> <a href="https://open.spotify.com/playlist/7rAcKhVbrIxncnQmdPdClY?si=sUG_-eAYRMasnzC1zTnX8g">Spotify</a>
          <p align="center">
            ${\textsf{\color{#fd7d41}︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵}}$
-           <p align="center">
-<img width="735" height="626" alt="image" src="https://github.com/user-attachments/assets/62731b20-a703-458a-8f38-c7ad40aeb54c" />
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img width="400" height="550" src="https://spotify-github-profile.kittinanx.com/api/view?uid=315ojuwwsbjrhupoedlzzvk5yu5u&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false">
+  </a>
+</p>
 
 
