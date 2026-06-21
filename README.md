@@ -17,7 +17,7 @@
       <p align="center">
 ˚. ᵎᵎI'm often AFK, so whispers is the only way to int w me. ᛝ
         <p align="center">
-˚. ᵎᵎUsually im on safe russia 1 or on safe server. Russia 1: USMP, lower right corner of spawn; <ins>Rare:</ins> MKB, undertale, upper pier, DSMP, Eddsworld; <ins>Super Rare:</ins> Genshin, HSR, Sekai, dānměiFD, Brawl Stars, Sonic, Madness combat, MGA; Safe: TF, Resident Evil, Comic area, USMP, DSMP. ᛝ
+˚. ᵎᵎUsually im on safe russia 1 or on safe server. Russia 1: USMP, lower right corner of spawn; <ins>Rare:</ins> MKB, undertale, upper pier, DSMP, Eddsworld; <ins>Super Rare:</ins> Genshin, HSR, Sekai, dānměiFD, Brawl Stars, Sonic, Madness combat, MHA; Safe: TF, Resident Evil, Comic area, USMP, DSMP. ᛝ
           <p align="center">
           ˚. ᵎᵎI will not answer if the nickname is DNI or DNIUF(Do not interact or Do not interact unless friends). If you will be trying to int w me, ill hide you or ignore you. ᛝ
             <p align="center">
