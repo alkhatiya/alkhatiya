@@ -1,5 +1,6 @@
 <p align="center">
-  <img width="936" height="614" alt="image" src="https://github.com/user-attachments/assets/bc6d4e44-ca41-4a01-ac82-1171ebec413e" />
+ <img width="1234" height="500" alt="image" src="https://github.com/user-attachments/assets/8de4b535-8021-4305-9bd8-6b387842c3d1" />
+
 <p align="center">
   ${\textsf{\color{#314b6e}︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵}}$
 <p align="center">
@@ -39,4 +40,4 @@
            <a href="https://music.yandex.ru/playlists/lk.c30960ad-be58-410b-9640-337bd3272e2e?utm_source=web&utm_medium=copy_link">YandexMusic</a> <a href="https://youtu.be/f2bHoTUiMpI?si=atzRGehXH4RGsBiU">Fav song</a> <a href="https://open.spotify.com/playlist/7rAcKhVbrIxncnQmdPdClY?si=sUG_-eAYRMasnzC1zTnX8g">Spotify</a>
          <p align="center">
            ${\textsf{\color{#314b6e}︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵‿︵}}$
-<img width="600" height="600" alt="image" src="https://github.com/user-attachments/assets/f1b25279-e813-4698-a1b6-c3c830d46ada" />
+<img width="635" height="500" alt="image" src="https://github.com/user-attachments/assets/7c426a38-84a0-4c01-b628-489a502e92cd" />
