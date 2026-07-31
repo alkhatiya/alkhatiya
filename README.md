@@ -1,26 +1,12 @@
 <p align="center">
-<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/ee41964a-9226-4e38-9782-d74a167f4a69" />
+<img width="735" height="488" alt="image" src="https://github.com/user-attachments/assets/b28726a7-897f-481d-a453-dd5f3463619a" />
     <p align="center">
-     ${\textsf{\color{#808080}Ever get the feeling}}$ ${\textsf{\color{#6e0000}you're not alone}}$ ${\textsf{\color{#808080}in the room?}}$
-        <p align="center">
-        ${\textsf{\color{#6e0000}You're not.}}$
-            <p align="center">
-${\textsf{\color{#6e0000}在你身后转过身去.}}$
-            <p align="center">
-    ${\textsf{\color{#6e0000}You're not.}}$
-                 <p align="center">
-                     ${\textsf{\color{#6e0000}在你身后转过身去.}}$
-                     <p align="center">
-                         ${\textsf{\color{#6e0000}You're not.}}$
-                         <p align="center">
-                             ${\textsf{\color{#6e0000}在你身后转过身去.}}$
-                             <p align="center">
-                                 ${\textsf{\color{#6e0000}You're not.}}$
-                                 <p align="center">
-                                     ${\textsf{\color{#6e0000}在你身后转过身去.}}$
-                                     <p align="center">
-                                         ${\textsf{\color{#6e0000}You're not.}}$
-                                         <p align="center">
-                                         <img width="736" height="414" alt="image" src="https://i.pinimg.com/736x/ea/8d/59/ea8d5933be8a40f0692dce19941f08b4.jpg" />
+     ${\textsf{\color{#ffa1b1}言わぬが花}}$ 
 <p align="center">
-${\textsf{\color{#808080}Wake up.}}$
+${\textsf{\color{#ffc0cb}︶ .     ⠀ -ˏˋ⋆ 𝓦ᥱ𝓵𝓬𝑜mᥱ ⋆ˊˎ-}}$ 
+    <p align="center">
+⠀  ${\textsf{\color{#ffe2e7}𝓃ᥲmᥱ'𝓈⠀ 𝒮𝑜𝓵ᥲ𝓇𝒾𝓊s ៸៸⠀}}$
+        <p align="center">
+◟✰𓆩☾⎯⭑⋆ ︶︶ ♪⠀  ︵‿੭୧‿ ᶻ 𝗓 𐰁
+            <p align="center">
+${\textsf{\color{#ffa1b1}໒꒰ྀི(e) ◞   ‌ ◟ ꒱ྀིა}}$
