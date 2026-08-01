@@ -3,12 +3,12 @@
     <p align="center">
      ${\textsf{\color{#ffa1b1}言わぬが花}}$ 
 <p align="center">
-${\textsf{\color{#ffc0cb}︶ .     ⠀ -ˏˋ⋆ 𝓦ᥱ𝓵𝓬𝑜mᥱ ⋆ˊˎ-}}$ 
+${\textsf{\color{#ffc0cb}︶ .     ⠀ -ˏˋ⋆ Welcome ⋆ˊˎ-}}$ 
     <p align="center">
-⠀  ${\textsf{\color{#ffe2e7}𝓃ᥲmᥱ'𝓈⠀ 𝒮𝑜𝓵ᥲ𝓇𝒾𝓊s }}$ 𝑜𝓇 ${\textsf{\color{#ffc0cb}𝒮𝑜𝓵៸៸⠀}}$
+⠀  ${\textsf{\color{#ffe2e7}ᶻ 𝗓 𐰁 Name's⠀ Solarius }}$ or ${\textsf{\color{#ffc0cb}Sol ៸៸⠀}}$
         <p align="center">
 ◟✰𓆩☾⎯⭑⋆ ︶︶ ♪⠀  ︵‿੭୧‿ ᶻ 𝗓 𐰁
             <p align="center">
-                ◜ ☽｡⋆   ˶ ${\textsf{\color{#ffe2e7}𝓉𝓇ᥲ𝓃smᥲs𝓬}}$ : ̗̀➛℘ ${\textsf{\color{#ffc0cb}𝓊sᥱ 𝑜𝓃𝓵𝓎 𝒽ᥱ/𝒽𝒾m}}$  ྀི꒱
+                ◜ ☽｡⋆   ˶ ${\textsf{\color{#ffe2e7}transmasc}}$ : ̗̀➛℘ ${\textsf{\color{#ffc0cb}use only he/him}}$  ྀི꒱
             <p align="center">
 ${\textsf{\color{#ffa1b1}໒꒰ྀི(e) ◞   ‌ ◟ ꒱ྀིა}}$
