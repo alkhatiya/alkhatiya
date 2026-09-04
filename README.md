@@ -14,3 +14,5 @@
                 ◜ ☽｡⋆   ˶ ${\textsf{\color{#499cf5}t }}$ ${\textsf{\color{#f482ba}r}}$ ${\textsf{\color{#ffffff}a }}$ ${\textsf{\color{#f482ba}n }}$ ${\textsf{\color{#499cf5}s }}$ ${\textsf{\color{#499cf5}masc}}$ : ̗̀➛℘ ${\textsf{\color{#499cf5}use only he/him}}$  ྀི꒱
             <p align="center">
 ${\textsf{\color{#f482ba}໒꒰ྀི(e) ◞   ‌ ◟ ꒱ྀིა}}$
+                <p align="center">
+<img width="735" height="488" alt="image" src="https://github.com/user-attachments/assets/bee96d4e-5d77-4761-9c04-6df6b7acc7ba" />
