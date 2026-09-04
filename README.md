@@ -7,7 +7,7 @@
 <p align="center">
 ︶ .     ⠀ -ˏˋ⋆ Welcome ⋆ˊˎ-
     <p align="center">
-⠀  ${\textsf{\color{#f482ba}ᶻ 𝗓 𐰁 Name's⠀ Solarius }}$ or ${\textsf{\color{#f482ba}Sol ៸៸⠀}}$
+⠀  ᶻ 𝗓 𐰁 Name's⠀ ${\textsf{\color{#f482ba}Solarius }}$ or ${\textsf{\color{#f482ba}Sol ៸៸⠀}}$
         <p align="center">
 ◟✰𓆩☾⎯⭑⋆ ︶︶ ♪⠀  ︵‿੭୧‿ ᶻ 𝗓 𐰁
             <p align="center">
